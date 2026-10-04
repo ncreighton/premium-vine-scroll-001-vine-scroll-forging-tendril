@@ -1,0 +1,2 @@
+# premium-vine-scroll-001-vine-scroll-forging-tendril
+Tired of vine templates that feel stiff and lifeless? Your scrolls deserve the organic flow of a master forger, not a cookie-cutter stamp.  This is the only Notion template that treats vine scroll creation as a craft. Instead of pre-made blocks, you get a modular forge with adjustable tendril curls, letting you bend, twist, and layer each scroll to
